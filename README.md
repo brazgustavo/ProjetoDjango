@@ -12,4 +12,4 @@ A estrutura que utilizei para que o site fosse funcional e clean está disponív
 
 Qualquer dúvida , sugestão ou elogios entrem em contato comigo!, valeu pessoal !
 
-Link do Vídeo: https://www.youtube.com/watch?v=cVXcm5v7YUA
+Link do Vídeo:https://youtu.be/OOMjpoNYDM4
